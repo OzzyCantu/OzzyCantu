@@ -3,10 +3,10 @@ I'm intrested in making coding community where we all come together and work on 
 
 Heres Some Info About Me:
 I am 13
-I live in Texas (No I am not a cowboy)
-I'm Non-binary (So please use They/Them when adressing me!)
-Gamer
-Class of '26
+,I live in Texas (No I am not a cowboy)
+,I'm Non-binary (So please use They/Them when adressing me!)
+,Gamer
+,Class of '26
 
 
 
